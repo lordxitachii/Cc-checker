@@ -1,3 +1,17 @@
-𝗠 𝗥 𝗢 𝗠 𝗘 𝗡 𝗫 𝗗 | @mR_oMeNxD
+• Hey 👋🏻 This Side itachiogu 
 
-𝗢 𝗠 𝗘 𝗡 𝗫 𝗗 𝗕 𝗜 𝗡 𝗦 | @OmenXD_Bins
+I am Instagram Meta Verification Service Provider,    I want to tell you that I am providing this service.
+                   👇🏻
+•Instagram custom Meta Verification 
+
+• Any Custom Name And Any business logo !!
+
+•100℅ verified Tick 
+
+• And In Lowest Tat 
+
+•If you are Suffering In Waitlist Dont worry We will Bypass In Mins✅ Contact here👇🏻
+
+Instagram. @believer.itachi 
+Email 📧 2k13uchiha@gmail.com
+Telegram. @itachiogu
